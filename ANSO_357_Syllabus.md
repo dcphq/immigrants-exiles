@@ -9,7 +9,7 @@ MWF, 02:45PM - 04:00PM, DEW 311
 Professor: Dimitris C. Papadopoulos
 Office: 
 Office hours: MWF 10:30 - 11:30 am and by appointment
-Email: Dimitrios.Papadopoulos@kzoo.edu
+
 
 
 
